@@ -1,6 +1,6 @@
 Resume-Ben-Lu
 =============
 
-My resume updates constantly because I frequently invite others to read that through and give me suggestions. 
+My resume updates regularly.
 
-If there's anything to say from you, I am happy to hear.
+I'd love to invite you to read that through and give me suggestions. 
